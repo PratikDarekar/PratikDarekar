@@ -22,7 +22,7 @@ I'm here to learn, collaborate, and share my journey into the exciting world of 
 
 ### 📫 Get in Touch
 
-📧 Feel free to reach out to me through email at [your@email.com]
+📧 Feel free to reach out to me through email at [pratikdarekar345@gmail.com]
 🌐 Connect with me on [LinkedIn](https://www.linkedin.com/in/pratik-darekar-92748a269/)
 
 ### 🌟 Let's Learn and Grow Together!
